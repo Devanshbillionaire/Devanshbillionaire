@@ -43,7 +43,7 @@
 
 ## 📫 How to Reach Me
 <p align="center">
-📧 devanshkumar5101973@gmail.com  
+📧 devansh.kumar.ai@gmail.com  
 </p>
 
 ---
